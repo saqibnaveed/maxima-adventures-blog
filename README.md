@@ -1,0 +1,1 @@
+# maxima-adventures-blog
